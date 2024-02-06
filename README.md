@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @onesmus-mutunga-enock
 - 👀 I’m interested in improving the already existing designs and coming up with new ideas in the same field as well
-- 🌱 
-- 💞️ I’m looking to collaborate on ...
+- 🌱  @landlord....
+- 💞️ I’m looking to collaborate with other  DEVs  and take the world of tech beyond imaginable heights
 - 📫 reach me at mutungao276@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: home is spelt as home but isn't home
 
 <!---
